@@ -1,2 +1,4 @@
 # huy-goi-ag50-mobifone
 2 cú pháp hủy thành công gói cước ag50 mobifone
+<p style="text-align: justify;">Gói cước AG50 của MobiFone ưu đãi 30GB, Free data lướt TikTok, Youtube,... do đó đang được người dùng ưa chuộng hiện nay. Tuy nhiên khi không còn nhu cầu sử dụng gói khuyến mãi nữa người dùng có thể hủy đi nhanh chóng. Vậy <a href="https://3gmobifones.com/huy-goi-cuoc-ag50-mobifone"><strong>hủy gói AG50 MobiFone</strong></a> thực hiện như thế nào? Cước phí hủy ra sao? Khi hủy thành công gói có được sử dụng data còn lại không?</p>
+<p style="text-align: justify;">Chắc hẳn khi có ý định hủy gói bạn sẽ đặt ra những thắc mắc mà <a href="http://3gmobifones.com" target="_blank" rel="noopener">3gmobifones.com</a> đề cập trên. Hãy nhanh chóng theo dõi nhanh bài viết sau để biết cách thực hiện chi tiết nhé!</p>
